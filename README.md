@@ -1,1 +1,0 @@
-# AI_Hiring_Assistant
